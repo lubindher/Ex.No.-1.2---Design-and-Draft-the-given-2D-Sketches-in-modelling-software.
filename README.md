@@ -37,6 +37,7 @@
 
  ## OUTPUT
  
+![exp1 2_page-0001](https://user-images.githubusercontent.com/118707246/227852264-f7aeeef2-18be-4232-a789-a46923cfe23f.jpg)
 
 
  
